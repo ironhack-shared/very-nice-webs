@@ -6,5 +6,4 @@ FRIDAY 2/11: https://n-e-r-v-o-u-s.com/cellCycle/
 MONDAY 5/11: https://www.who-cares.pt
 TUESDAY 13/11: http://radio.garden/
 WEDNESDAY 14/11: https://color.adobe.com/explore/?filter=most-used&time=month
-THURSDAY 15/11: http://wildflower.resn.co.nz/  
-FRIDAY 16/11: https://acko.net/blog/how-to-fold-a-julia-fractal/
+THURSDAY 15/11: http://wildflower.resn.co.nz/
